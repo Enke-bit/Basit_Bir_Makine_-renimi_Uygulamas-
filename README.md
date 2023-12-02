@@ -1,0 +1,1 @@
+# Basit_Bir_Makine_-renimi_Uygulamas-
